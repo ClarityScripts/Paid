@@ -1,5 +1,5 @@
 # Devn
 Paid scripts released by the Clarity member Devn.
 
-#Scripts
+#Paid Scripts
 Clarity Nidalee - The Bestial Goddess
